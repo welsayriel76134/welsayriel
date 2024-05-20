@@ -1,1 +1,1 @@
-Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
+Ed Sheeran's album "÷" (Divide), released in 2017, dominated the charts with singles like "Shape of You," "Castle on the Hill," and "Perfect."
