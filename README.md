@@ -1,1 +1,1 @@
-"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
+The #MeToo movement, which gained momentum in the late 2010s, led to increased awareness and conversations about sexism, abuse, and harassment in the music industry.
