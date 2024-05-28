@@ -1,1 +1,1 @@
-Despite the challenges posed by piracy, the music industry saw the emergence of legal digital music platforms like Apple's iTunes Store, which launched in 2001.
+Beyoncé's visual album "Lemonade" (2016) received widespread acclaim for its exploration of themes like infidelity, race, and feminism, sparking discussions about black womanhood.
