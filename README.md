@@ -1,1 +1,1 @@
-Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
+Britney Spears released her second studio album, "Oops!... I Did It Again," in May 2000, featuring hit singles like the title track and "Stronger."
