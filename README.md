@@ -1,1 +1,1 @@
-Britney Spears released her second studio album, "Oops!... I Did It Again," in May 2000, featuring hit singles like the title track and "Stronger."
+Backstreet Boys released their album "Black & Blue" in 2000, featuring singles like "Shape of My Heart" and "The Call."
