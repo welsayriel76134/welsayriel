@@ -1,1 +1,1 @@
-Backstreet Boys released their album "Black & Blue" in 2000, featuring singles like "Shape of My Heart" and "The Call."
+Drake's "In My Feelings" (2018) inspired the viral "Kiki Challenge," where people filmed themselves dancing alongside moving vehicles, leading to safety concerns and controversy.
