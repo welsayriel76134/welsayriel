@@ -1,1 +1,1 @@
-Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
+The popularity of social media platforms like Instagram, Twitter, and TikTok gave rise to viral music challenges, dance trends, and meme-worthy songs.
