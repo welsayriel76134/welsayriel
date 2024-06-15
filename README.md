@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+The popularity of MP3 players like the iPod, introduced by Apple in 2001, revolutionized how people consumed and listened to music on the go.
