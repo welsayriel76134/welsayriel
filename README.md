@@ -1,1 +1,1 @@
-Taylor Swift's transition from country to pop music was solidified with the release of her album "1989" in 2014, featuring chart-toppers like "Shake It Off" and "Blank Space."
+Disney's animated film "Frozen" (2013) became a cultural phenomenon, with the soundtrack's hit song "Let It Go" winning the Academy Award for Best Original Song.
