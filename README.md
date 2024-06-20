@@ -1,1 +1,1 @@
-The grunge movement emerged from the Seattle music scene in the early 1990s, with bands like Nirvana, Pearl Jam, and Soundgarden gaining widespread popularity.
+Jessica Simpson's debut single "I Wanna Love You Forever" was released in 1999 but gained significant traction in 2000, marking the beginning of her music career.
