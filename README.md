@@ -1,1 +1,1 @@
-Jessica Simpson's debut single "I Wanna Love You Forever" was released in 1999 but gained significant traction in 2000, marking the beginning of her music career.
+Daft Punk's debut album "Homework" (1997) revolutionized electronic music with its blend of house, techno, and funk, influencing a generation of artists.
