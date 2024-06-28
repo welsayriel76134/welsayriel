@@ -1,1 +1,1 @@
-Britney Spears's debut single "...Baby One More Time" (1998) propelled her to superstardom and became one of the best-selling singles of all time.
+"Gangnam Style" by Psy, released in 2012, became the first YouTube video to reach one billion views and sparked a global dance craze.
