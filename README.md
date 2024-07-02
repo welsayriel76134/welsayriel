@@ -1,1 +1,1 @@
-The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
+The 43rd Annual Grammy Awards took place in 2001, honoring artists like U2, Santana, and Eminem, who won Album of the Year for "The Marshall Mathers LP."
