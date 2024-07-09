@@ -1,1 +1,1 @@
-Faith Hill's "Breathe" won the Grammy Award for Best Country Album, and the title track won Best Female Country Vocal Performance and Best Country Song.
+Beyoncé's visual album "Lemonade" (2016) received widespread acclaim for its exploration of themes like infidelity, race, and feminism, sparking discussions about black womanhood.
