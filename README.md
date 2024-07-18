@@ -1,1 +1,1 @@
-The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
+Cardi B's debut single "Bodak Yellow" (2017) made history by becoming the first solo female rap song to top the Billboard Hot 100 chart since Lauryn Hill in 1998.
