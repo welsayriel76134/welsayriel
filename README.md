@@ -1,1 +1,1 @@
-Jay-Z's album "The Dynasty: Roc La Familia" was released in 2000, featuring hits like "I Just Wanna Love U (Give It 2 Me)" and "Change the Game."
+The 2010s marked the rise of music streaming platforms like Spotify, Apple Music, and Tidal, revolutionizing how people consume and access music.
