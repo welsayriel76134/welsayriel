@@ -1,1 +1,1 @@
-Pearl Jam's debut album "Ten" (1991) received critical acclaim and is considered one of the greatest rock albums of all time, featuring singles like "Alive" and "Jeremy."
+Cardi B's debut single "Bodak Yellow" (2017) made history by becoming the first solo female rap song to top the Billboard Hot 100 chart since Lauryn Hill in 1998.
