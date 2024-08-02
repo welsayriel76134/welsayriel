@@ -1,1 +1,1 @@
-"Gangnam Style" by Psy, released in 2012, became the first YouTube video to reach one billion views and sparked a global dance craze.
+"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
